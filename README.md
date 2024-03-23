@@ -1,0 +1,1 @@
+Olá, sou brasileira então isto estará em portuguêS. Meu nickname é Abelha, então me chame assim, sou apenas uma iniciante que quer aprender mais sobre este site para que depois possa usa-lo. Ela/dela!
